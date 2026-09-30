@@ -1,7 +1,6 @@
-
-
-
 a book that has ultimate tech knowledge, this is the book that has everything you need
+
+the product coming soon 
 
 
 this is what we learn everyday
