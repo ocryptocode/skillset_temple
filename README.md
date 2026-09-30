@@ -8,8 +8,6 @@ this is what we learn everyday
 we don't just learn we also teach
 
 this is gonna be hosted by wolfist and aalex along with roadmap 2.0
-
-
 ----- 
 
 
