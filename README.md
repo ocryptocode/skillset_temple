@@ -1,4 +1,4 @@
-a book that has ultimate tech knowledge, this is the book that has everything you need
+a skillset repo that has ultimate tech knowledge, this is the book that has everything you need
 
 the product coming soon 
 
