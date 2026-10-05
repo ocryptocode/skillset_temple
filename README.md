@@ -2,6 +2,8 @@ a skillset repo that has ultimate tech knowledge, this is the book that has ever
 
 the product coming soon 
 
+coming soon on whop
+
 
 this is what we learn everyday
 
