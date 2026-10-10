@@ -1,9 +1,6 @@
 a skillset repo that has ultimate tech knowledge, this is the book that has everything you need
 
-the product coming soon on whop
-
-
-this is what we learn everyday
+coming soon on whop
 
 we don't just learn we also teach
 
