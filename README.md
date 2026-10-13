@@ -1,4 +1,4 @@
-a skillset repo that has ultimate tech knowledge, this is the book that has everything you need
+a skillset combination that has ultimate tech knowledge, this is the book that has everything you need
 
 coming soon on whop
 
