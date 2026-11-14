@@ -1,8 +1,8 @@
 a skillset combination that has ultimate tech knowledge, this is the book that has everything you need
 
-coming soon on whop
-
 we don't just learn we also teach
+
+
 
 this is gonna be hosted by wolfist and aalex along with roadmap 2.0
 
