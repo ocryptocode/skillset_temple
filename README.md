@@ -1,6 +1,5 @@
 a skillset that has ultimate tech knowledge, this is the book that has everything you need
 
-we don't just learn we also teach
 
 
 
